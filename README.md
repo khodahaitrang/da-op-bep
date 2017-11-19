@@ -17,11 +17,14 @@ Sự kết hợp màu sắc luôn được sử dụng để tối đa hóa vi�
 
 *Đá granite đối diện nhà bếp.*
 
-Đá hoa cương luôn là tên xuất hiện trong đầu của mọi người khi có nhu cầu lát. Đá Granit được sử dụng rất phổ biến do chi phí thấp, đẹp, hợp vệ sinh ... 
+Đá hoa cương luôn là tên xuất hiện trong đầu của mọi người khi có nhu cầu lát. Đá Granit được sử dụng rất phổ biến do chi phí thấp, đẹp, hợp vệ sinh ...
 Tuy nhiên, màu sắc của đá granit ít hơn đá nhân tạo, vì vậy rất khó để lựa chọn khách hàng. Người tiêu dùng luôn đòi hỏi và tìm kiếm một sự khác biệt, đây không phải là sự lựa chọn tối ưu.
+
 Đá hoa cương cũng được sử dụng để lát bề mặt nhà bếp bằng các tính chất như chống bám bẩn, bề mặt nhẵn bóng nhưng các đường nối của đá granit thường thấy và dễ nhìn thấy nó không bằng đá. Nhà bếp nhân tạo.
+
 Tuy nhiên, giá đá granite mềm hơn đá nhân tạo. Người tiêu dùng thường chọn loại đá này cho nhà bếp.
 Granite không đẹp và sang trọng như đá nhân tạo nhưng được chọn lọc hơn bởi vì nó rất quen với đá này và với giá phải có thể sở hữu một nhà bếp như mong muốn.
+
 Mọi chi tiết xin vui lòng liên hệ với chúng tôi
 CÔNG TY ĐÁ ỐP LÁT HẢI TRANG
 Cơ sở 1: 87 Tôn Đức Thắng-Đống Đa-Hà Nội
