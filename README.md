@@ -12,6 +12,7 @@ Trên thị trường hiện nay, đá nhân tạo và đá granit được ưa 
 *Mặt bàn đá nhân tạo.*
 
 Đá nhân tạo đối diện nhà bếp luôn mang lại vẻ đẹp hiện đại và vô cùng đẳng cấp cho nhà bếp của bạn. Thông thường mọi người không sử dụng màu đen nhưng muốn sử dụng màu trắng để tạo sự khác biệt so với các loại đá khác. Bây giờ nhà bếp của bạn sẽ được sạch sẽ, gọn gàng và rộng rãi hơn.
+[mẫu đá ốp bếp đẹp](http://khodadep.com/thu-vien/da-op-bep-hai-trang.jpg)
 Đá nhân tạo được ưa thích trong bề mặt nhà bếp vì nó không bị vết bẩn, chống thấm nước và chống thấm tuyệt đối. Những tính năng granit này cũng đặc biệt hơn nhưng nó có thể ghép đôi mà không nhìn thấy sự ghép nối tạo ra sự tinh tế và nâng cao tính thẩm mỹ của bếp.
 Sự kết hợp màu sắc luôn được sử dụng để tối đa hóa việc sử dụng đá nhân tạo trên bề mặt nhà bếp, tại thời điểm này bếp của bạn không còn đơn giản nữa nhưng sẽ được làm bằng khối, bố trí nhà bếp của bạn sẽ đẹp hơn, rõ ràng hơn.
 
