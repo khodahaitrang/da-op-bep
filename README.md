@@ -15,6 +15,8 @@ Trên thị trường hiện nay, đá nhân tạo và đá granit được ưa 
 
 ![mẫu đá ốp bếp đẹp](http://khodadep.com/thu-vien/da-op-bep-hai-trang.jpg)
 
+>> Xem các mẫu đá ốp bếp cao cấp tại: [http://khodadep.com/da-op-bep-granite-51.html](http://khodadep.com/da-op-bep-granite-51.html)
+
 Đá nhân tạo được ưa thích trong bề mặt nhà bếp vì nó không bị vết bẩn, chống thấm nước và chống thấm tuyệt đối. Những tính năng granit này cũng đặc biệt hơn nhưng nó có thể ghép đôi mà không nhìn thấy sự ghép nối tạo ra sự tinh tế và nâng cao tính thẩm mỹ của bếp.
 Sự kết hợp màu sắc luôn được sử dụng để tối đa hóa việc sử dụng đá nhân tạo trên bề mặt nhà bếp, tại thời điểm này bếp của bạn không còn đơn giản nữa nhưng sẽ được làm bằng khối, bố trí nhà bếp của bạn sẽ đẹp hơn, rõ ràng hơn.
 
@@ -24,6 +26,8 @@ Sự kết hợp màu sắc luôn được sử dụng để tối đa hóa vi�
 Tuy nhiên, màu sắc của đá granit ít hơn đá nhân tạo, vì vậy rất khó để lựa chọn khách hàng. Người tiêu dùng luôn đòi hỏi và tìm kiếm một sự khác biệt, đây không phải là sự lựa chọn tối ưu.
 
 Đá hoa cương cũng được sử dụng để lát bề mặt nhà bếp bằng các tính chất như chống bám bẩn, bề mặt nhẵn bóng nhưng các đường nối của đá granit thường thấy và dễ nhìn thấy nó không bằng đá. Nhà bếp nhân tạo.
+
+>> Xem các mẫu đá hoa cương tại: [http://khodadep.com/da-hoa-cuong-cao-cap-40.html](http://khodadep.com/da-hoa-cuong-cao-cap-40.html)
 
 Tuy nhiên, giá đá granite mềm hơn đá nhân tạo. Người tiêu dùng thường chọn loại đá này cho nhà bếp.
 Granite không đẹp và sang trọng như đá nhân tạo nhưng được chọn lọc hơn bởi vì nó rất quen với đá này và với giá phải có thể sở hữu một nhà bếp như mong muốn.
@@ -43,3 +47,7 @@ Cơ Sở 2: 113 Ngô Gia Tự-Long Biên-Hà Nội
 Trụ Sở Chính: 68 Ngô Thị Nhậm-Hà Đông-Hà Nội
 
 Điện Thoại: 0942 373 696 - 0975917286 
+
+Website: [khodadep.com](http://khodadep.com)
+
+Facebook: [fb.com/daoplathaitrang](https://www.facebook.com/daoplathaitrang/)
