@@ -26,10 +26,17 @@ Tuy nhiên, giá đá granite mềm hơn đá nhân tạo. Người tiêu dùng 
 Granite không đẹp và sang trọng như đá nhân tạo nhưng được chọn lọc hơn bởi vì nó rất quen với đá này và với giá phải có thể sở hữu một nhà bếp như mong muốn.
 
 Mọi chi tiết xin vui lòng liên hệ với chúng tôi
+
 CÔNG TY ĐÁ ỐP LÁT HẢI TRANG
+
 Cơ sở 1: 87 Tôn Đức Thắng-Đống Đa-Hà Nội
+
 Điện Thoại : 0912296696
+
 Cơ Sở 2: 113 Ngô Gia Tự-Long Biên-Hà Nội
+
 Điện Thoại: 0942 373 696 - 0975917286
+
 Trụ Sở Chính: 68 Ngô Thị Nhậm-Hà Đông-Hà Nội
+
 Điện Thoại: 0942 373 696 - 0975917286 
